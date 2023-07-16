@@ -1,0 +1,1 @@
+# Singrauli_Open_Pit_blasting_analysis
